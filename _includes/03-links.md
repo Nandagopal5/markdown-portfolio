@@ -1,1 +1,3 @@
-Replace this with a link to your a GitHub or social media profile.
+Github : https://github.com/Nandagopal5
+
+Youtube : https://www.youtube.com/channel/UCz4BYtUOEdgylX8UmfoDWBw
