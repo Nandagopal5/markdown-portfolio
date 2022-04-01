@@ -1,3 +1,3 @@
-# Nanda Gopal
+# Nanda Gopal D
 ## Computer Science Graduate
 *KL University*
