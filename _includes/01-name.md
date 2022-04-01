@@ -1,3 +1,3 @@
-# Nanda Gopal, LTI
+# Nanda Gopal
 ## Computer Science Graduate
 *KL University*
