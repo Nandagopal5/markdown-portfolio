@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+A list of songs that i have produced:
+- Shuruaat 🟣
+- Flames ⚪
+- Kohinoor 🔴
+- Invincible ⚫
